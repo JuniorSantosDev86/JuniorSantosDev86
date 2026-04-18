@@ -74,7 +74,7 @@ Especially in teams that value **quality**, **technical fundamentals**, **clear 
 
 - **Email:** juniorsantos.dev86@gmail.com
 - **Location:** Curitiba, PR - Brazil
-- **Linkedin:** https://www.linkedin.com/in/ademir-dos-santos-junior-1806063b8/?skipRedirect=true
+- **Linkedin:** https://www.linkedin.com/in/ademir-dos-santos-junior-1806063b8
 
 ---
 
